@@ -1,0 +1,21 @@
+Mẹ !
+Mẹ ơi hôm nay ngày của mẹ
+Viết tặng bài thơ thỏa nỗi lòng
+Nơi con xứ khách trời nắng nhẹ
+Quê mình đã hết đợt đông phong?
+Bỗng nhớ những ngày con bé thơ
+Vòng tay, tiếng hát, nhịp ầu ơ
+Chạnh lòng con muốn mình đừng lớn
+Thời gian hờ hững chẳng đợi chờ
+Rồi khuôn mặt mẹ lắm vết hằn
+Bàn tay gầy guộc mấy nếp nhăn
+Mái tóc pha sương màu đã ngả
+Vì con, bao đêm mẹ trở trăn
+Hôm nay bên bờ sông vắng lặng
+Lưu vong đất khách chẳng cạnh người
+Vì ai đời mẹ bao gánh nặng
+Người con xa xứ nhớ khôn nguôi
+Mẹ ơi! Hôm nay ngày của mẹ
+Chẳng đỡ đần chi, chẳng giúp gì
+Chỉ có nỗi lòng thương khôn xiết
+Ơn mẹ đời này con khắc ghi
