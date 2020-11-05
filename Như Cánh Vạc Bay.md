@@ -1,4 +1,4 @@
-Lyrics:   :musical_score: 
+Lyrics:   :musical_score:   
 Nắng có hồng bằng đôi môi em  
 Mưa có buồn bằng đôi mắt em  
 Tóc em từng sợi nhỏ  
