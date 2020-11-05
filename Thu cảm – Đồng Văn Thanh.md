@@ -9,7 +9,7 @@ Mặt hồ in sắc mây vờn bóng sớm
 Anh nơi nào trong biển mặn thế nhân?  
 Thu diệu kỳ…thẹn “đáy thắt lưng ong”!  
 Thu vương vấn gió vờn bay mái tóc  
-Thu vàng nắng dáng em soi nét ngọc 
+Thu vàng nắng dáng em soi nét ngọc   
 Thu bên anh khát bỏng cháy trong em.  
 Mùa thu này đặc biệt lắm….không anh?  
 Thu gặp gỡ từng cung đường đón đợi  
