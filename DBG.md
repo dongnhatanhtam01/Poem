@@ -4,4 +4,6 @@ Thậm chí còn mong muốn trở thành người khác. Mặc dù vậy, vẫn
 Đó là vì ta không ngừng quyết tâm không thay đổi lối sống của mình..  
 
 Có lẽ vì cho rằng dù có hơi bất tiện, thiếu tự do nhưng lối sống bây giờ vẫn tốt hơn, cảm thấy không  
-thay đổi sẽ thoải mái hơn là thay đổi vì từ kinh nghiệm vốn có có thể phán đoán được cần xử lý những việc gì  
+thay đổi sẽ thoải mái hơn là thay đổi vì từ kinh nghiệm vốn có có thể phán đoán được cần xử lý những việc gì sẽ xảy ra. Giống như lái một chiếc xe quen thuộc. Dù hỏng hóc ít nhiều nhưng vẫn trong tầm kiểm soát, có thể lái thành thạo  
+
+Trong khi đó, nếu lựa chọn lối sống mới...
